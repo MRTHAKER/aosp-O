@@ -1,1 +1,4 @@
 # aosp-O
+
+OPEN BOB 
+SHOW VAEGNA
