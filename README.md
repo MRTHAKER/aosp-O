@@ -1,4 +1,5 @@
 # aosp-O
 
-OPEN BOB 
-SHOW VAEGNA
+ 
+Aman 🔥FireLord🔥:
+Open vegena show Bob
